@@ -1,3 +1,3 @@
 nama saya nazar
 alamat jalan gawalise
-handpone : 082235477497
+umur : 21
