@@ -1,3 +1,3 @@
 # mas
 
-### Tola jangan lupa makan
+### Tola jangan lupa makan.
